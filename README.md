@@ -25,3 +25,6 @@ Here is what I found: Keeping a healthy mindset has been shown to improve stress
 
 Johnathan please lookup hermeticism.
 
+Hey guys, here is what I found on hermeticism. Hermeticism is a religious, philosophical, and estoric tradition. The main concept is writing to Hermes Trismegistus.
+
+The END
