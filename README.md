@@ -21,3 +21,7 @@ To be succseful you have to make smart goals and stay commitied to them, being c
 
 Tyler please do reasearch on keeping a healthy mindset.
 
+Here is what I found: Keeping a healthy mindset has been shown to improve stress related health symptoms. It also tends to lead to a happier and healthier life.
+
+Johnathan please lookup hermeticism.
+
