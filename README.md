@@ -10,3 +10,8 @@ Hello, this is what I found about Tailings:
 Tailings consist of ground rock and process effluents that are generated in a mine processing plant. Tailings are different than a overburden.
 
 Omega please research about how to get a Green Card (Permanent Residence) as an investor and write down two sentences of this topic, and pass it on to the next person with another topic for them to research.
+
+Hello, this is what i found about permanent residency in us. 
+Foreigners can qualify for permanent U.S. residency — a green card — if they invest at least $1 million in a new business venture that creates at least 10 jobs. The threshold drops to $500,000 for investments in high-unemployment or rural areas.
+
+Ryan Please do research about on how to be successful.
