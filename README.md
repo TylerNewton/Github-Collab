@@ -16,8 +16,8 @@ Foreigners can qualify for permanent U.S. residency — a green card — if they
 
 Ryan Please do research about on how to be successful.
 
-Hello.this what i found on how to be successful:
-To be succseful you have to make smart goals and stay commitied to them. being capable of ajustment and building a growth mindeset.
+Hello,this what i found on how to be successful:
+To be succseful you have to make smart goals and stay commitied to them, being capable of ajustment and building a growth mindeset.
 
 Tyler please do reasearch on keeping a healthy mindset.
 
