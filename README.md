@@ -15,3 +15,9 @@ Hello, this is what i found about permanent residency in us.
 Foreigners can qualify for permanent U.S. residency — a green card — if they invest at least $1 million in a new business venture that creates at least 10 jobs. The threshold drops to $500,000 for investments in high-unemployment or rural areas.
 
 Ryan Please do research about on how to be successful.
+
+Hello.this what i found on how to be successful:
+To be succseful you have to make smart goals and stay commitied to them. being capable of ajustment and building a growth mindeset.
+
+Tyler please do reasearch on keeping a healthy mindset.
+
